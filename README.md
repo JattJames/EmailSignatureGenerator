@@ -11,8 +11,8 @@ Please send me the logos @
 
 webmaster@randhawaworld.com
 
-Forums: 
-http://randhawaworld.com/forums/forum_topics.asp?FID=6&amp;SID=c47z98z1-32c2-cbc778e7-2e487zeb-9zc1z8e7
+Generate Your Signatures: 
+http://www.steadysoft.in/signatures/
 Last Update:
 New Features has been added
 
