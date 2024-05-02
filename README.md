@@ -12,7 +12,7 @@ Please send me the logos @
 webmaster@randhawaworld.com
 
 Generate Your Signatures: 
-http://www.steadysoft.in/signatures/
+http://www.steadysoft.ca/signatures/
 Last Update:
 New Features has been added
 
